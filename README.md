@@ -1,0 +1,1 @@
+# Sales-of-Summer-Clothes-August-2020
